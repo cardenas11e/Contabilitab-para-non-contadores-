@@ -1,2 +1,1 @@
-# Contabilitab-para-non-contadores-
-Contabilitab para non contadores 
+HAGA CLIC PARA UNIRSE AL FORO DE DISCUSIÓN. https://chat.whatsapp.com/LaascuSRYjKCe42XCbGVYF
