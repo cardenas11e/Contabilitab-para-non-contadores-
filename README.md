@@ -1,1 +1,1 @@
-HAGA CLIC PARA UNIRSE AL FORO DE DISCUSIÓN. https://chat.whatsapp.com/LaascuSRYjKCe42XCbGVYF
+HAGA CLIC PARA UNIRSE AL GRUPO DE DISCUSIÓN DE WhatsApp para continuar con el proyecto.. https://chat.whatsapp.com/LaascuSRYjKCe42XCbGVYF
